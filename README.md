@@ -13,4 +13,3 @@
 - 📫 How to reach me: akovlenkoangelina@gmail.com
 - 😄 Pronouns: Bro Gaming
 - ⚡ Fun fact: GDPS Editor 2.2
-- 💙 Discord server: APKCombo
