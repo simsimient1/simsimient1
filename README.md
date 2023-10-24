@@ -19,6 +19,8 @@
 
 - 🤖 Join Discord **ChatBeLike**
 
+- ❤️ Join **channel** [YouTube](https://m.youtube.com/@MikeGaming420/featured)
+
 <h3 align="left">Connect with me:</h3>
 <p align="left">
 </p>
